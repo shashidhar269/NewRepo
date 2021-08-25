@@ -1,2 +1,2 @@
 # NewRepo
-Change your thoughts and you change your world
+If you’re good at something, never do it for free.
